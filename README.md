@@ -1,6 +1,6 @@
 WeSpeak LIVE – Terms of Service
 
-Effective Date: [Insert Date]
+Effective Date: 04/09/2026
 
 Welcome to WeSpeak LIVE, a social and language exchange platform that offers live rooms, voice rooms, messaging, subscriptions, and virtual currency features. By accessing or using WeSpeak LIVE (“the Service”), you agree to be bound by these Terms of Service (“Terms”). If you do not agree, you may not use the Service.
 
